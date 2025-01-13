@@ -1,6 +1,6 @@
 # Current Resume
 
-🌷 Seeking winter and summer 2025 opportunities
+🌷 Seeking winter and summer 2026 opportunities
 
 ## Connect with me!
 🌻 [LinkedIn](https://www.linkedin.com/in/fay-lee/)
