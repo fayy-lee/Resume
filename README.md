@@ -4,5 +4,5 @@
 
 ## Connect with me!
 🌻 [LinkedIn](https://www.linkedin.com/in/fay-lee/)
-🌻 [Personal Website](https://www.faylee.me/) 
+🌻 [Personal Website](https://www.faylee.tech/) 
 🌻 [Email](mailto:flee081@uottawa.ca) 
