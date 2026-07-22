@@ -1,6 +1,6 @@
 # Current Resume
 
-🌷 Seeking internships for summer 2026 and new grad opportunities for January 2027!
+🌷 Seeking new grad opportunities for January 2027!
 
 ## Connect with me!
 🌻 [LinkedIn](https://www.linkedin.com/in/fay-lee/)
